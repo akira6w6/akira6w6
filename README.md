@@ -2,7 +2,7 @@
 
 - Hi there!   
 - My name is **[Akira]**,  
-- I'm from **[Isekai]**.  
+- I'm from **[異世界]**.  
 
 # 🌍 Education and Work Experience
 
